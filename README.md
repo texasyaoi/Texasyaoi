@@ -12,8 +12,7 @@
 
 {-𝙇𝘼𝙉𝙂𝙐𝘼𝙂𝙀𝙎 = eng / spa}
 
--𝙁𝘼𝙉𝘿𝙊𝙈𝙎 = statehumans (main) countryhumans solarballs dandys world (ish)
-dsmp
+-𝙁𝘼𝙉𝘿𝙊𝙈𝙎 = statehumans (main) countryhumans solarballs dsmp
 
 -𝘽𝙀𝙎𝙏 𝙋𝙀𝙊𝙋𝙇𝙀 𝙀𝙑𝙀𝙍!!♡ angelitoo , sc , ger , santi , my gf!! , willyyy , and all of my mootss!!⸝⸝
 
