@@ -17,6 +17,8 @@ dsmp
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/CsVNv40T/chunkbanduo-spokeishere.gif" alt="chunkbanduo spokeishere" border="0"></a>
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31f4sgzjjweujumwmx7ldeg7pd4i&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
+
 ₍ᐢ. ̫ .ᐢ₎
 
 
