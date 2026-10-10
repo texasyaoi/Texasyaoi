@@ -1,4 +1,4 @@
-## 𝙃𝙚𝙮𝙖!!꒰১ ໒꒱
+## 𝙃𝙚𝙮𝙖!!꒰১ ໒꒱ - bizukii lol
 
 -𝙉𝘼𝙈𝙀 = bizukii , muz,  naomii
 
